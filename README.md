@@ -1,6 +1,6 @@
 ![headline](https://github.com/user-attachments/assets/72c10545-f982-4024-8c38-9e0eaba7332b)
-![headpic](https://github.com/user-attachments/assets/102b0e90-44dd-4406-b899-1426ea8116a4)
 Nandha Kishore K B 
+
 Computer Science Engineering student with a success mindset 🎓 || Passionate about upgrading the world together 🌍
 
 🎯 Passionate Engineering Student dedicated to academic excellence and proactive learning. 🎓
